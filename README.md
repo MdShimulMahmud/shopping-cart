@@ -1,1 +1,2 @@
-# shopping-cart
+Images quality are too high 
+
